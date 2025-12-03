@@ -56,7 +56,7 @@ I enjoy building small web projects, improving my logic-building skills, and exp
 ---
 
 ### 💬 Connect With Me
-📧 Email: *add your email here*  
+📧 Email: *sanapathiindhu2003@gmail.com*  
 🌐 Portfolio (coming soon)
 
 ---
